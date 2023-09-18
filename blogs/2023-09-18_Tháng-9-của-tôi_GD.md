@@ -1,5 +1,3 @@
-# Tháng 9 của tôi
-
 ![image](https://github.com/didi-smile/posts/assets/18680781/7d9ead38-c93c-4613-a946-da19220461e1)
 
 > "_Tại sao ta lại phải lắng nghe trái tim mình?
