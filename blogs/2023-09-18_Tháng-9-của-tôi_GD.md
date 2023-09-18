@@ -2,8 +2,9 @@
 
 ![image](https://github.com/didi-smile/posts/assets/18680781/7d9ead38-c93c-4613-a946-da19220461e1)
 
-"_Tại sao ta lại phải lắng nghe trái tim mình?
+> "_Tại sao ta lại phải lắng nghe trái tim mình?
 ... Bởi vì trái tim cậu ở đâu thì kho báu cậu tìm cũng ở đó..._"
+
 Trích dẫn: Nhà Giả Kim - Paulo Coelho
 
 Với mình, tháng 9 luôn là khoảng thời gian đặc biệt gắn liền với sự kiện nào đó cuộc đời mình, thật lạ.
